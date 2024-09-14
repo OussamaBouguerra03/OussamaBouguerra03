@@ -15,7 +15,6 @@
 - ⚡ Java Lover ☕.  
   
 
-- ⚽️When I'm not coding, you'll often find me cheering on my favorite team(Ya Lefriki Allez Allez 🔴⚪)  
   
 
 <br/>  
